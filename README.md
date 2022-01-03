@@ -1,1 +1,1 @@
-# rsschool-cv
+https://yupione.github.io/rsschool-cv/cv
